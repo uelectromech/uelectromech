@@ -1,0 +1,5 @@
+- 👋 Hi, I’m M.ISMAIL
+- 👀 I’m interested in PROGRAMMING
+- 🌱 I’m currently learning PYTHON
+- 💞️ I’m looking to collaborate on A PROJECT
+- 📫 How to reach me WHATSAPP: +966565646859
